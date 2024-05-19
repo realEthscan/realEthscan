@@ -1,0 +1,3 @@
+- 👋 Hi, new to here, @Ethscan in twitter or Warpcast@ethscan.eth
+- 👀 I’m an investor in crypto, BASE & ENS MAXI. I hodl ethscan.eth & bingx.eth 
+- 🌱 I’m accumulating great .eth
